@@ -1,2 +1,2 @@
 # Beijing-
-I Love Beijing
+Beijing is snowing. It is very cold!
